@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Salman
-- 📫 Building Chic Chic...
+- 🤘🏻 Building Chic Chic...
 
 <!---
 cca-salman/cca-salman is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
